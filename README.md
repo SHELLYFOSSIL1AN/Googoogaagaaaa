@@ -1,1 +1,0 @@
-![](https://www.patreon.com/c/forgottenshell/about)
